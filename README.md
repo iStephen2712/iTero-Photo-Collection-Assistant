@@ -1,1 +1,0 @@
-# iTero-Photo-Collection-Assistant
